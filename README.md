@@ -6,7 +6,7 @@ Professores Stella Dornelas e Alexandre Montanha
 Thiago Rocha Cerqueira
 RA: 323220262
 
-link do Video:
+link do Video: https://youtu.be/iJeCIbVtkMY
 
  
 
